@@ -1,3 +1,6 @@
 Adilet
+Baktybek Tazhibaev
+=======
 Nasirov
+
 
