@@ -1,2 +1,2 @@
 Adilet
-Baktybek Tzhibaev
+Baktybek Tazhibaev
